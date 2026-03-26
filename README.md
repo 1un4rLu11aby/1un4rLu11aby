@@ -16,12 +16,15 @@
 　　　　　.　　　　　　　　　　⠀✦
 　˚　　　　　　　　　　　　　　*　　　　　
 
-<br><p align="center"> <img width="500" height="300" alt="mooncookiebanner1" src="https://github.com/user-attachments/assets/59e68fa7-0140-45bb-a4f3-fa2afd8c4c67" />
+<br><p align="center"> <img width="736" height="408" alt="image" src="https://github.com/user-attachments/assets/da1a5f46-4e8f-49e8-b4e7-ccd5f1dc43ed" />
 
-<br><p align="center"> "𝙏𝙝𝙚 𝙢𝙤𝙤𝙣 𝙞𝙨 𝙗𝙚𝙖𝙪𝙩𝙞𝙛𝙪𝙡, 𝙞𝙨𝙣'𝙩 𝙞𝙩, 𝙂𝙞𝙣𝙜𝙚𝙧?."
- <br><p align="center"> "𝙔𝙚𝙨, 𝙗𝙪𝙩 𝙩𝙝𝙚 𝙨𝙩𝙖𝙧𝙨 𝙞𝙣 𝙮𝙤𝙪𝙧 𝙚𝙮𝙚𝙨 𝙠𝙚𝙚𝙥 𝙢𝙚 𝙛𝙤𝙘𝙪𝙨𝙚𝙙 𝙞𝙣𝙨𝙩𝙚𝙖𝙙, 𝘼𝙨𝙩𝙧𝙤.."
- <br><p align="center"> ''Ginger fictkin / irl . Astro yume . '' 
-<br><p align="center"> ily oomfs <3
+<br><p align="center"> "Astro! You're hurt.."
+ <br><p align="center"> "𝘐'𝘭𝘭 𝘣𝘦 𝘰𝘬𝘢𝘺, 𝘥𝘰𝘯'𝘵 𝘸𝘰𝘳𝘳𝘺."
+ <br><p align="center"> "Let me help, My baking isn'y anywhere as good as Cosmo or Sprout but.." 
+<br><p align="center"> "𝘐𝘵'𝘴 𝘵𝘩𝘦 𝘵𝘩𝘰𝘶𝘨𝘩𝘵 𝘵𝘩𝘢𝘵 𝘤𝘰𝘶𝘯𝘵𝘴. 𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶, 𝘎𝘪𝘯𝘨𝘦𝘳.
+
+br><p align="center"> Astro yume . Ginger irl 
+br><p align="center"> Hi Cosmo!!
 
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 　　　　　　*　　　　　　　　　　　.
