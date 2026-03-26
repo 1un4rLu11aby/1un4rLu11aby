@@ -1,4 +1,5 @@
-# WILL BE REMADE SOON !!
+
+
 <img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/bc747970-b51f-4009-9547-c00cd56feb51" />
 <img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/b50e5115-a2a5-4661-b835-7135ff412164" /> <img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/ac3b01cc-7821-43dc-a22b-03dbc13fb69c" /><img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/d38930cd-f45d-4b8a-b32e-12eeafebe4c7" />
 
@@ -6,7 +7,7 @@
 
 <br><p align="center"> "Astro! You're hurt.."
  <br><p align="center"> "𝘐'𝘭𝘭 𝘣𝘦 𝘰𝘬𝘢𝘺, 𝘥𝘰𝘯'𝘵 𝘸𝘰𝘳𝘳𝘺."
- <br><p align="center"> "Let me help, My baking isn'y anywhere as good as Cosmo or Sprout but.." 
+ <br><p align="center"> "Let me help, My baking isn't anywhere as good as Cosmo or Sprouts but.." 
 <br><p align="center"> "𝘐𝘵'𝘴 𝘵𝘩𝘦 𝘵𝘩𝘰𝘶𝘨𝘩𝘵 𝘵𝘩𝘢𝘵 𝘤𝘰𝘶𝘯𝘵𝘴. 𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶, 𝘎𝘪𝘯𝘨𝘦𝘳.
 
 <br><p align="center"> Astro yume . Ginger irl 
